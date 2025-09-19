@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 💫 I am Aditya
 I am a student
 
 
